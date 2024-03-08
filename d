@@ -2,13 +2,4 @@ asdasv
 dsdfsad 
 adasfsdf
 asdad
-adasasdas
-asda
-asdasfadsdf
-asdsaads
-asdsadas
-adasdas
-adfdafdsdfs
-asdasdfEQwd
-asdsadasa
-asdas
+asd
